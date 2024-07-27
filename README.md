@@ -1,3 +1,3 @@
 # Dr.-strange-eye-of-Agamotto
 
-## This is the locket eye of Dr strange of Marvel Universe
+## The locket which Dr. strange wear in which the one of infinity stone "TIME STONE" is there.
